@@ -1,0 +1,4 @@
+- 👋 Hi, I’m claquettefroide
+- 👀 I’m interested in informatic
+- 🌱 I’m currently learning python C++ java node
+- 📫 How to reach me add me on discord : claquettefroide
